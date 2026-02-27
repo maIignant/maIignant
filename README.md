@@ -9,7 +9,7 @@ you admired me in a way that i never had
 c*h enc even if not stated, cuddle comf
 </p>
 <p align="center">
-bad social anxiety AAHHHH
+IM SO SORRY IF I APPEAR SKITTISH
 </p>
 
 <p align="center">
