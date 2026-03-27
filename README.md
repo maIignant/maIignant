@@ -10,7 +10,7 @@ $\text{\color{#AF8489} 5teen 06.05 filipino}$\
 $\text{\color{#AF8689} aroace demigirl any prns}$\
 $\text{\color{#AF8989} skeet highkin (｡>﹏<)}$
 
- $\text{\color{#AF9089} c+h friendly}$\
+$\text{\color{#AF9089} c+h friendly}$\
 $\text{\color{#AF968A} hyperverbal selective mutism}$\
 $\text{\color{#B0A490} always iwec}$
 
