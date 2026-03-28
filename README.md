@@ -11,9 +11,10 @@ $\text{\color{#AF8689} aroace demigirl any prns}$\
 $\text{\color{#AF8989} skeet highkin (｡>﹏<)}$
 
 $\text{\color{#AF9089} c+h friendly}$\
-$\text{\color{#AF968A} hyperverbal + semi-verbal}$\
-$\text{\color{#B0A490} always iwec}$
+$\text{\color{#AF968A} offtab most of the time}$\
+$\text{\color{#B0A490} i hide freely!}$
 
 [<img width="70" height="70" src="https://meawsource.carrd.co/assets/images/image35.png?v=fa03bbc5">]()  [<img width="92" height="92" src="https://meawsource.carrd.co/assets/images/image36.png?v=da2947da">](https://forsaken.atabook.org/)  [<img width="75" height="75" src="https://meawsource.carrd.co/assets/images/image37.png?v=fb6237e6">]()
 
+$\text{\color{#AF968A} (rentry and straw are a wip)}$
 </div>
